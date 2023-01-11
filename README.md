@@ -1,1 +1,1 @@
-# sejalshreya23.github.io
+# Simon-the-game.github.io
